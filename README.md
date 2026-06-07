@@ -1,4 +1,4 @@
-🩵🩵🩵🩵
+🩵🩵🩵🩵 i genuinely appreciate you all and this server, i will forever be gratefull im in it with such cool people like you guys<3
 
 <img width="300" height="300" alt="lunardeathtrap-1" src="https://github.com/user-attachments/assets/34b216e5-ac57-4902-9336-364bd1273873" />
 <img width="384" height="216" alt="SOULL" src="https://github.com/user-attachments/assets/fff4ab70-874f-4c59-a079-28d6b9e28429" /> 
